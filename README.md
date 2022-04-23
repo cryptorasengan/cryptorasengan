@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cryptorasengan
-- 👀 I’m interested in building
+- 👀 I’m interested in building (Currently BD/Marketing for Xenon Protocol)
 - 📫 How to reach me twitter @cryptorasengan
 
 <!---
